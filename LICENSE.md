@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with best bot for Polymarket - order-book-analysis and portfolio-optimization, the #1 bot. Includes order-book-analysis and portfolio-optimization
 
 
 
